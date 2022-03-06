@@ -39,5 +39,7 @@ Meet upwards of 80-120 potential new clients - Be recognized as a local supporte
 
 COVID-19 Price Reduction: $1200 Now Only $699.00
 
-[https://www.eventbrite.com/e/owasp-los-angeles-chapter-meeting-sponsorship-tickets-30572600471](https://www.eventbrite.com/e/owasp-los-angeles-chapter-meeting-sponsorship-tickets-30572600471)
+Interested? Send an email to sponsorship.la@owasp.org
+
+
 
